@@ -1,6 +1,6 @@
 \ `’ - 🦴 - Idk why I'm still alive ! >0 _*
 ·. 🎉 -Pronouns:it/its/he/she ! >3
-·. 🍁 -Sexuality(s): Lithromantic,aceflux,poly,omni,demiflux ! <D
+·. 🍁 -Extrovert <D
 ·. 🍫 -MBTI: isfp
 
 ° I like sonic stuff . . .
