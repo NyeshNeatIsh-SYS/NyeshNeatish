@@ -3,4 +3,4 @@
 ·. 🍁 -Extrovert <D
 ·. 🍫 -MBTI: isfj
 
-° I like sonic stuff . . .
+° I like sonic & sonic.EXE stuff . . . 🫐 ?!!
