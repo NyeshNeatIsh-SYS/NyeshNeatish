@@ -3,6 +3,6 @@
 ·. 🍩 -Extrovert <D
 ·. 🪄 -MBTI: isfj
 
-° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! ;:
+° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
 
 • #Feel free to int !! 💌 \ \ C+H freely , ships and  RP's are available ! ^^ 🎀 _= ‹
