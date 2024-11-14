@@ -1,5 +1,5 @@
 \ `’ - 🦴 - Idk why I'm still alive ! >0 _*
-·. 🫧 -Pronouns:it/its/he/she ! >3
+·. 🫧 -Kin:Tails,silver,shadow,sonic,charmy n jet (sYs) ! >3
 ·. 🍩 -Extrovert <D
 ·. 🪄 -MBTI: isfj
 
