@@ -1,6 +1,6 @@
 \ `’ - 🦴 - Idk why I'm still alive ! >0 _*
 ·. 🫧 -Selfshipper,rareshipper ! >3
-·. 🍩 -Extrovert <D
+·. 🍩 -Omnivert <D
 ·. 🪄 -MBTI: isfj
 
 ° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
