@@ -2,6 +2,7 @@
 ·. 🫧 -Selfshipper,rareshipper ! >3
 ·. 🍩 -Omnivert <D
 ·. 🪄 -MBTI: isfj
+·. 🧸 -sign: Cancer -u- ..
 
 ° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
 
