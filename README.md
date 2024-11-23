@@ -5,7 +5,7 @@
 
 ° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
 
-• #Feel free to int !! 💌 \ \ C+H freely , ships and  RP's are available ! ^^ 🎀 _= ‹
+• #Feel free to int !! 💌 \ \ C+H freely , any person of age and RP's are available ! ^^ 🎀 _= ‹
 
 • $ tip; I have social anxiety, so if you're someone I know or someone close to me, remember that I don't want to be around too many people. :) +°, 🌼
 
