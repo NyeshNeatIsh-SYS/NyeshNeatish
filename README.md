@@ -32,4 +32,6 @@ top 4:blaze and shadow 🧩
 
   "I usually stay in trees and also hide in them (in pt), each place I stay has a meaning, you might learn a little about me, I really like explaining things and talking. ^_^"
 
-   " i Don't like talking about my parents!"
+- IMPORTANT ↓ ↓ -
+
+ "I don't like when people ask me about my real life or my parents (I've had daddy issues AND mommy issues since I was 6 years old),You can ask me all you want about my appearance, and if you see that I'm talking a little about my life to you, it's because I trust you. (remember that) ;))"
