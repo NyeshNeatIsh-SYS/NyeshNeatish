@@ -21,3 +21,5 @@ top 4:blaze and shadow 🧩
 «bonus»:Eggman ! 🎭
 
 • 👾 ≈[[WARNING]]; Please, if you ship any character with Cream or Eggman, don't interact, I don't like it when people ship 'me' with other people. >_< .„§
+
+*‡= 🧼 "i love nostalgia,trauma and dark core sm lansosgwpsgsonqodhn (Mix or wtv-) +×`$ 🤖
