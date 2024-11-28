@@ -2,7 +2,7 @@
 ·. 🫧 -Selfshipper,rareshipper ! >3
 ·. 🍩 -Omnivert <D
 ·. 🪄 -MBTI: isfj
-·. 🧸 -sign: Cancer -u- ..
+·. 🧸 -sign: ♋ ..
 
 ° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
 
@@ -23,3 +23,13 @@ top 4:blaze and shadow 🧩
 • 👾 ≈[[WARNING]]; Please, if you ship any character with Cream or Eggman, don't interact, I don't like it when people ship 'me' with other people. >_< .„§
 
 *‡= 🧼 "i love nostalgia,trauma and dark core sm lansosgwpsgsonqodhn (Mix or wtv-) +×`$ 🤖
+
+- MORE INFO ↓ ↓ -
+
+  "If I don't go after you (if you're a friend or someone I know), it's because I want to be alone, sometimes this happens when I'm listening to music (or painting) or maybe I just don't want to talk."
+
+ "I don't talk much, I'm a little shy when I talk to people (anyone, even those I know), so when you see that I'm talking a lot (which is probably about strange things), it means: Craziness, probably something abt my adhd or smt like that idk lol..."
+
+  "I usually stay in trees and also hide in them (in pt), each place I stay has a meaning, you might learn a little about me, I really like explaining things and talking. ^_^"
+
+   " i Don't like talking about my parents!"
