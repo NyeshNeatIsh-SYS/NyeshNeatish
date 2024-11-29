@@ -3,6 +3,7 @@
 ·. 🍩 -Omnivert <D
 ·. 🪄 -MBTI: isfj
 ·. 🧸 -sign: ♋ ..
+·. 🧷 -country: 🇧🇷 ! ! [Brazil/imma Brazilian *U*]
 
 ° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
 
