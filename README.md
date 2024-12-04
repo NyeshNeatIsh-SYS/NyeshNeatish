@@ -3,9 +3,9 @@
 ·. 🍩 -Omnivert <D
 ·. 🪄 -MBTI: isfj
 ·. 🧸 -sign: ♋ ..
-·. 🧷 -country: 🇧🇷 ! ! [Brazil/imma Brazilian *U *]
+·. 🧷 -country: 🇧🇷 ! ! [Brazil/imma Brazilian]
 
-° » I like sonic & sonic.EXE stuff . . . 🫐 ?!! @ “
+° » I like sonic & sonic.EXE stuff + hh/hb, Monica's gang, FNaF,fnf and mooreeee!. . . 🫐 ?!! @ “
 
 • #Feel free to int !! 💌 \ \ C+H freely , any person of age and RP's are available ! ^^ 🎀 _= ‹
 
