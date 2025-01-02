@@ -1,6 +1,6 @@
 🎈
 \/
-(15+ PPL DO # **NOT** INT.....)
+(15+ PPL DO # **NOT** INT.....) // only some of my friends or people I know !
 -
 (Please go see my xtwitter for important cases...)
 
