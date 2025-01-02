@@ -15,8 +15,12 @@ PS;please go see my kin (HH part) list before commenting too.(for understanding 
 
 _pfp by me
 
+I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends I'm chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
+
+sorry Ashe,had to block and hide you because of amelia.ik she would tell you. :)
+
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
->Last updated;; # January 1, 2025, 8:19 PM X] #
+>Last updated;; # January 2, 2025,5:52 pm X] #
 
 | 🎭 |
