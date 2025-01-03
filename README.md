@@ -2,7 +2,7 @@
 \/
 (18+ PPL DO # **NOT** INT.....) // only some of my friends or people I know !
 -
-
+I don't use discord. try talking to me on pt or twitter at least.
 
 INNTTT PLSS and C+h too!! <33 ❤️‍🩹❤️‍🩹
 
