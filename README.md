@@ -20,6 +20,6 @@ add:if you're Amelia,dni,you discomfort me and always will.
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
->Last updated;; @ January 3, 2025,12:32 pm #
+>Last updated;; @ Friday,January 3,12:34 pm,2025. #
 
 | 🎭 |
