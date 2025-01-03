@@ -1,23 +1,22 @@
 🎈
 \/
-(15+ PPL DO # **NOT** INT.....) // only some of my friends or people I know !
+(18+ PPL DO # **NOT** INT.....) // only some of my friends or people I know !
 -
-(Please go see my xtwitter for important cases...)
+
 
 INNTTT PLSS and C+h too!! <33 ❤️‍🩹❤️‍🩹
 
-(hh warning);RADIOAPLE MUST DIE. ANY LUCI SHIPPPER/SHIPS DNI.,IF YOU'RE ONE OF THESE AND INT W ME AND TALKING ABOUT RADIOAPLE OR START A RP W IT I'LL BLOCK **AND** HIDE YOU!!! I ABSOLUTELY *HATE* LUCI SHIPPERS AND SO THAT SHIP,It makes me uncomfortable,and the fandom is not helping at all. / (aroace trigger included)...(DW,i won't block or hide you in the first attempt because you probably didn't know about it.)But if you keep touching on the subject too much or force me to like the ship, I'll hide you. I can be rude about that kind of thing, and there's no point in arguing because I already warned you.
-(coming from a lucifer kinnie.)
+sg ships int if you want.
 
-PS;please go see my kin (HH part) list before commenting too.(for understanding me better ig?)
+PS;you can go see my kin list (if you want before commenting too.(for understanding me better ig?)
 
 -Also,DNGTC means 'do not get too close' !
-
+ 
 _pfp by me
 
-I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends I'm chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
+I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends I'um chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
 
-sorry Ashe,had to block and hide you because of amelia.ik she would tell you. :)
+if you're Amelia,dni,you discomfort me and always will.6t
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
