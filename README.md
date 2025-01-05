@@ -1,5 +1,9 @@
 🎈
 \/
+
+call me Martine/Martin or just use my username aka nyesh/Murthye or any characters I kin..
+
+_-_-_-_-_-_-_-_-_-_-_
 (19+ PPL DO **NOT** INT.....) // only some of my friends or people I know !
 -
 I don't use discord. try talking to me on pt or twitter at least.
