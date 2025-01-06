@@ -24,10 +24,14 @@ add:if you're Amelia,dni,you discomfort me and always will.
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
-PLEASE. i beg you...tell me when something is making your uncomfortable,and I'll stop it.seriously...
+PLEASE. i beg you...tell me when something is making you uncomfortable,and I'll stop it.seriously...
 
-i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner,but I'm only a little bit more different when it's about my silly kids ^w^.
+I love nicknames,also,feel free to whisper,add me,talk,int,C+h,boop or crown,bow,hat etc.anytime. I'm comfortable with everything.but also,w2i...heh
 
->Last updated;; @ Saturday ,January 4,2025,5:37 pm. #
+(don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4.)
+
++i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner,but I'm only a little bit more different when it's about my silly kids ^w^.
+
+>Last updated;; @ Momday ,January 6,2025,5:00 pm. #
 
 | 🎭 |
