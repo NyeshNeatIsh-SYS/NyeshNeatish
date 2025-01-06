@@ -4,11 +4,14 @@
 call me Martine/Martin or just use my username aka nyesh/Murthye or any characters I kin..
 
 _-_-_-_-_-_-_-_-_-_-_
+
 (19+ PPL DO **NOT** INT.....) // only some of my friends or people I know !
 -
 I don't use discord. try talking to me on pt or twitter at least.
 
 INNTTT PLSS and C+h too!! <33 ❤️‍🩹❤️‍🩹
+
+_-_-_-_-_-_-_-_-_-_-_-_
 
 sg ships int if you want. (Specially gi-hun x recruiter or Hwang X Recruiter!)// (I don't ship Hwang X gi-hun, everytime I try to ship them it makes me weird, they're more into a 'platonic-brothers' relationship..but if you ship them,you can still int!)
 
@@ -18,20 +21,26 @@ PS;I don't use 'Kys/kms,sexual' jokes and usually hate dark humour. the only thi
  
 _pfp by me
 
+_-_-_-_-_-_-_-_-_-_-_
+
 I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends I'm chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
 
 add:if you're Amelia,dni,you discomfort me and always will.
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
+_-_-_-_-_-_-_-_-_-_-_
+
 PLEASE. i beg you...tell me when something is making you uncomfortable,and I'll stop it.seriously...
 
 I love nicknames,also,feel free to whisper,add me,talk,int,C+h,boop or crown,bow,hat etc.anytime. I'm comfortable with everything.but also,w2i...heh
 
-(don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4.)
+(don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4 months.)
+
+if I pin you in my friends list (pt) and talk about stuff I like/think about and maybe some of my problems and real life(without waiting for 4 months)...congrats!, you're one of my comf person.
 
 +i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner,but I'm only a little bit more different when it's about my silly kids ^w^.
 
->Last updated;; @ Momday ,January 6,2025,5:00 pm. #
+>Last updated;; @ Momday ,January 6,2025,5:04 pm. #
 
 | 🎭 |
