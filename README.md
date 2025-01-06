@@ -37,10 +37,12 @@ I love nicknames,also,feel free to whisper,add me,talk,int,C+h,boop or crown,bow
 
 (don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4 months.)
 
+_-_-_-_-_-_-_-_-_-_-_
+
 if I pin you in my friends list (pt) and talk about stuff I like/think about and maybe some of my problems and real life(without waiting for 4 months)...congrats!, you're one of my comf person.
 
 +i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner,but I'm only a little bit more different when it's about my silly kids ^w^.
 
->Last updated;; @ Momday ,January 6,2025,5:04 pm. #
+>Last updated;; @ Momday ,January 6,2025,5:06 pm. #
 
-| 🎭 |
+| 🔱 |
