@@ -43,6 +43,6 @@ if I pin you in my friends list (pt) and talk about stuff I like/think about and
 
 +i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner,but I'm only a little bit more different when it's about my silly kids ^w^.
 
->Last updated;; @ Momday ,January 6,2025,5:06 pm. #
+>Last updated;; @ _January 6,2025,monday,5:09 pm.. #
 
 | 🔱 |
