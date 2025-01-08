@@ -18,8 +18,6 @@ sg ships int if you want. (Specially gi-hun x recruiter or Hwang X Recruiter!)//
 PS;I don't use 'Kys/kms,sexual' jokes and usually hate dark humour. the only thing i joke about is gore jokes and humour. ^_^
 
 -Also,DNGTC means 'do not get too close' !
- 
-_pfp by me
 
 _-_-_-_-_-_-_-_-_-_-_
 
