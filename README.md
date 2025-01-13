@@ -31,7 +31,7 @@ _-_-_-_-_-_-_-_-_-_-_
 
 PLEASE. i beg you...tell me when something is making you uncomfortable,and I'll stop it.seriously...
 
-I love nicknames,also,feel free to whisper,add me,talk,int,kiss,C+h,boop or crown,bow,hat etc.anytime. I'm comfortable with everything.but also,w2i...heh
+I love nicknames,also,feel free to whisper,add me,talk,int,kiss,C+h,boop or crown,bow,hat etc.anytime.I'm comfortable with everything.but also,w2i...heh
 
 (don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4 months.)
 
