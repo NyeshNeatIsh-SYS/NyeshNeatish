@@ -7,21 +7,21 @@ _-_-_-_-_-_-_-_-_-_-_
 
 (19+ PPL DO **NOT** INT.....) // only some of my friends or people I know !
 -
-I don't use discord. try talking to me on pt or twitter at least.
+I don't use discord. try talking to me on pt or twitter at least! → X: SpinNdashyesIS \
 
 INNTTT PLSS and C+h too!! <33 ❤️‍🩹❤️‍🩹
 
 _-_-_-_-_-_-_-_-_-_-_-_
 
-sg ships int if you want. (Specially gi-hun x recruiter or Hwang X Recruiter!)// (I don't ship Hwang X gi-hun, everytime I try to ship them it makes me weird, they're more into a 'platonic-brothers' relationship..but if you ship them,you can still int!)
+sg ships int if you want. (Specially gi-hun x recruiter or in-ho X Recruiter!)// (I don't ship in-ho X gi-hun, everytime I try to ship them it makes me weird, they're more into a 'platonic-brothers' relationship..but if you ship them,you can still int!)
 
-PS;I don't use 'Kys/kms,sexual' jokes and usually hate dark humour. the only thing i joke about is gore jokes and humour. ^_^
+PS;I don't use 'Kys/kms' jokes and usually hate dark humour. the only thing i joke about is gore. ^_^
 
--Also,DNGTC means 'do not get too close' !
+-Also, Don't approach me if you're just going to make fun or joke about how I act.^_^
 
 _-_-_-_-_-_-_-_-_-_-_
 
-I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends I'm chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
+I do use tonetags,but only with people I'm comfortable or close with.im a bit clingy and can be jealous too:But when it's about other friends/gf,bf I'm chill about it. any joke comment like 'you act like a baby' or wtv,I might believe it so DONT push me down the cliff.
 
 add:if you're Amelia,dni,you discomfort me and always will.
 
@@ -31,7 +31,7 @@ _-_-_-_-_-_-_-_-_-_-_
 
 PLEASE. i beg you...tell me when something is making you uncomfortable,and I'll stop it.seriously...
 
-I love nicknames,also,feel free to whisper,add me,talk,int,C+h,boop or crown,bow,hat etc.anytime. I'm comfortable with everything.but also,w2i...heh
+I love nicknames,also,feel free to whisper,add me,talk,int,kiss,C+h,boop or crown,bow,hat etc.anytime. I'm comfortable with everything.but also,w2i...heh
 
 (don't question about why i don't like talking about my irl life or other personal stuff unless you know me for at least 4 months.)
 
