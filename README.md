@@ -7,7 +7,7 @@ _-_-_-_-_-_-_-_-_-_-_
 
 (19+ PPL DO **NOT** INT.....) // only some of my friends or people I know !
 -
-I don't use discord. try talking to me on pt or twitter at least! → X: SpinNdashyesIS \
+I don't use discord. try talking to me on pt or twitter at least! →(first link)←
 
 INNTTT PLSS and C+h too!! <33 ❤️‍🩹❤️‍🩹
 
