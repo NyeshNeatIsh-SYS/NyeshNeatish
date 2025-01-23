@@ -7,7 +7,6 @@ _
 _-_-_-_-_-_-_-_-_-_-_
 
 (19+ PPL DO **NOT** INT.....) // only some of my friends or people I know ! (lol all my friends r gone...)
-
 -
 I don't use discord. try talking to me on pt or twitter at least! →(first link)←
 
