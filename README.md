@@ -42,7 +42,7 @@ _-_-_-_-_-_-_-_-_-_-_
 
 if I pin you in my friends list (pt) and talk about stuff I like/think about and maybe some of my problems and real life(without waiting for 4 months)...congrats!, you're one of my comf person.
 
-+i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner.
++i can be energetic when I'm around ppl i like/p,or family members like online brothers,sisters or partner.
 
 >Last updated;; @ _January 6,2025,monday,5:09 pm.. #
 
