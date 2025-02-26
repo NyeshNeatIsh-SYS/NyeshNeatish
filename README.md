@@ -1,6 +1,6 @@
-🎈
+🦈
 
-\ /
+= =
 
 call me Peter Parker,sonic,vox, mephiles,infinite,once-ler,angel dust/Anthony,Martine/Martin or just use my username aka nyesh/Murthye or any characters I kin.. ‹PLEASE don't ask about my dead name. also, I'm *not* trans.›
 
@@ -49,4 +49,4 @@ if I pin you in my friends list (pt) and talk about stuff I like/think about and
 
 >Last updated;; @ _January 6,2025,monday,5:09 pm.. #
 
-| 🔱 |
+| 📺 |
