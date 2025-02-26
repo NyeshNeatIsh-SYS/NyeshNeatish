@@ -45,6 +45,8 @@ if I pin you in my friends list (pt) and talk about stuff I like/think about and
 
 +i can be energetic when I'm around ppl i like/p,or family members like online brother,sis or partner.
 
+# `MORE INFORMATION ON MY RENTRY ! ♥
+
 >Last updated;; @ _January 6,2025,monday,5:09 pm.. #
 
 | 🔱 |
