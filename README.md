@@ -21,7 +21,7 @@ sg ships int if you want. (Specially gi-hun x recruiter or in-ho X Recruiter!)//
 PS;I don't use 'Kys/kms' jokes and can sometimes make dark humour jokes.i also joke about graphic violence.. ;)
 
 -Also, Don't approach me if you're just going to make fun or joke about how I act or my age.^_^
-...or if you're trying to correct me like those people who say 'sorry but can you stop doing weird shit' and all...you guys are annoying,please. 'youre in a safe server' yeah I know. did you know there's ADULTS. in the safe server? 'what about the kids!!' it's none of your business to 'take care' of kids. I know when some kid approach you with their beginner skin and you just ignore them,pal. same for those who don't respect others opinions, those whose are overdramatic over not so problematic stuff and Saying 'i'm a minor' just so people can stop. this also goes to those who roast. EW, don't even approach me.
+...or if you're trying to correct me like those people who say 'sorry but can you stop doing weird shit' and all...you guys are annoying,please. 'youre in a safe server' yeah I know. did you know there's ADULTS. in the safe server? 'what about the kids!!' it's none of your business to 'take care' of kids. I know when some kid approach you with their beginner skin and you just ignore them,pal. same for those who don't respect others opinions,SOME trolls who think they're funny and talk about sensitive stuff just so they can get attention,those whose are overdramatic over not so problematic stuff and Saying 'i'm a minor' just so people can stop. this also goes to those who roast and bully people and manipulate them saying 'i was kidding/it was a joke', making them uncomfortable. EW, don't even approach me.
 
 _-_-_-_-_-_-_-_-_-_-_
 
